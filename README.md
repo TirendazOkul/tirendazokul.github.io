@@ -1,1 +1,1 @@
-# Prolife Akademi Sitesi
+# Tirendaz Okul Sitesi
